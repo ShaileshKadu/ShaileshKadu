@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ShaileshKadu
-- 👀 I’m interested in learning coding skilla
+- 👀 I’m interested in learning coding skill
 - 🌱 I’m currently learning B.tech(CSE)
 - 📫  reach me on shaileshkadu261@gmail.com
 -  mobile no. 7499496745 
